@@ -1,7 +1,7 @@
 # Surga898: Platform Terbaik untuk Pengalaman Gaming Online yang Menyenangkan
-[![071a13_249068189a944cba89cc66370a7a5bf1~mv2](https://github.com/user-attachments/assets/74f46354-2956-4204-af89-cf58dcc499c9)](https://t.ly/yukgaskaan)
-## LOGIN [SURGA898](https://t.ly/yukgaskaan)
-## DAFTAR [SURGA898](https://t.ly/yukgaskaan)
+[![071a13_249068189a944cba89cc66370a7a5bf1~mv2](https://github.com/user-attachments/assets/74f46354-2956-4204-af89-cf58dcc499c9)](https://t.ly/t.ly/yukgaskan)
+## LOGIN [SURGA898](https://t.ly/yukgaskan)
+## DAFTAR [SURGA898](https://t.ly/yukgaskan)
 
 Di era digital yang terus berkembang, bermain game online menjadi salah satu hiburan utama yang diminati banyak orang. Salah satu platform yang muncul sebagai pilihan populer di kalangan penggemar game adalah Surga898. Nama "Surga898" tidak hanya menggambarkan pengalaman bermain yang mengasyikkan tetapi juga mencerminkan tempat di mana pemain dapat menemukan hiburan yang lengkap, aman, dan menyenangkan.
 ![jos007 (1)](https://github.com/user-attachments/assets/a7e885f1-339f-486d-9ba9-056c453e5cb1)
