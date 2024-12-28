@@ -1,5 +1,5 @@
 # Surga898: Platform Terbaik untuk Pengalaman Gaming Online yang Menyenangkan
-[![071a13_249068189a944cba89cc66370a7a5bf1~mv2](https://github.com/user-attachments/assets/74f46354-2956-4204-af89-cf58dcc499c9)](https://t.ly/t.ly/yukgaskan)
+[![071a13_249068189a944cba89cc66370a7a5bf1~mv2](https://github.com/user-attachments/assets/74f46354-2956-4204-af89-cf58dcc499c9)](https://t.ly/yukgaskan)
 ## LOGIN [SURGA898](https://t.ly/yukgaskan)
 ## DAFTAR [SURGA898](https://t.ly/yukgaskan)
 
